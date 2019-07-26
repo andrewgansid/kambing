@@ -1,2 +1,0 @@
-# kambing
-kontol
